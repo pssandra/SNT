@@ -1,5 +1,4 @@
 # SNT
 HELLO
-hey.....
-hoi
-heeee..... :)_
+hey.....makaleee
+poiiii chavveeee
